@@ -16,4 +16,4 @@ I love playing with computer components, so I think I've touched most of the ent
 
 Instead, it's a bit of a flaw that all the money saved up has run out. Feels sorrow when I see my account balance.
 
-So I think I'm almost done introducing myself. I wanted to get along with people and share a lot of ideas, so I came into Likelion. I hope I can meet good people this year and I want to be a good person also. I look forward to your kind cooperation! Thanks!# test
+So I think I'm almost done introducing myself. I wanted to get along with people and share a lot of ideas, so I came into Likelion. I hope I can meet good people this year and I want to be a good person also. I look forward to your kind cooperation! Thanks!
